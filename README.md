@@ -16,6 +16,6 @@
 
 ### Favorite Meme
 
-![Favorite Meme](file-OlwtJncLfuSZPH3jlPEzQsrFhttps://static1.thegamerimages.com/wordpress/wp-content/uploads/2020/02/microtransactions-everywhere.jpg)
+![Favorite Meme](microtransactions-everywhere.avif)
 
 
